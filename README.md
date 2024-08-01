@@ -1,4 +1,4 @@
-# ✦Xem.Phim.!!✦ — "Hành Tinh Khỉ Vương Quốc Mới"【2024】FulL-4K Vietsub [[HD~1080p]]
+# ✦Xem.Phim.!!✦ — "Hành Tinh Khỉ Vương Quốc Mới"【2024】FulL-4K Vietsub [[ʜᴅ~1080p]]
 
 17 𝓂𝑜𝓂𝑒𝓃𝓉 𝒶𝑔𝑜 - Xem phim mới Hành Tinh Khỉ: Vương Quốc Mới online miễn phí chất lượng cao với phụ đề tiếng việt | Hành Tinh Khỉ: Vương Quốc Mới (2024) Phim online thuyết minh vietnam full hd 4k.
 
